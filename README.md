@@ -1,0 +1,2 @@
+# inspirational
+some inspirational notes
